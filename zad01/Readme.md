@@ -1,2 +1,0 @@
-# TechUt
-Marek Konieczny
